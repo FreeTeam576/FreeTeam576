@@ -1,0 +1,3 @@
+- 👋 Hi, we are Free Team
+- 👀 we areinterested in programming and making games
+- ✨ If you want to contact us sent a mesage on discord Free Team#7430 
